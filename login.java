@@ -1,0 +1,13 @@
+hhdd
+fd
+ef
+dc
+efdc
+df
+dc
+dc
+ed
+dc
+dc
+f
+d
